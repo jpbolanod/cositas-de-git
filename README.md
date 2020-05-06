@@ -10,7 +10,7 @@ Esta es una tarea del Laboratorio de Metodos Computacionales
 
 
 
-![Villa de Leyva](https://es.wikipedia.org/wiki/Villa_de_Leyva#/media/Archivo:Villadeleyva04.jpg)
+![Barca](https://www.prensa-latina.cu/images/2020/mayo/05/futbol-covid-barcelona.jpg)
 
 # Acerca del Autor
 
