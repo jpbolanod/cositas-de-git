@@ -10,7 +10,7 @@ Esta es una tarea del Laboratorio de Metodos Computacionales
 
 
 
-![Barca](https://www.prensa-latina.cu/images/2020/mayo/05/futbol-covid-barcelona.jpg)
+![meme](https://los40es00.epimg.net/los40/imagenes/2020/04/07/bigbang/1586215340_564291_1586215643_noticia_normal.jpg)
 
 # Acerca del Autor
 
